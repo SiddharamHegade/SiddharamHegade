@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SiddharamHegade
-- 👀 I’m interested in ...coding and building imaginary thinks in vertualy .
+- 👀 I’m interested in ...coding and building imaginary thinks in virtually.
 - 🌱 I’m currently learning ... web devoping.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
